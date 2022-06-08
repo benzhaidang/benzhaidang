@@ -1,4 +1,4 @@
-# Welcome to my little world! 
+# Welcome to my world! 
 ![Coding habits](https://images.pexels.com/photos/4974915/pexels-photo-4974915.jpeg?cs=srgb&dl=pexels-olia-danilevich-4974915.jpg&fm=jpg)
 
 #### Introduction:
